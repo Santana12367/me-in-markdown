@@ -7,4 +7,4 @@
 
 ## [Click here to see my playlist](https://open.spotify.com/playlist/6mnGZ8v0HPaaHas2MuznXS?si=WXbA_YhnTYu4zTUyaU_NuQ)
 
-## [Click here to see my collage](https://www.canva.com/design/DAGwig71-uo/IMjyGUHjwNgxv7MKx853-Q/edit?utm_content=DAGwig71-uo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+## ![Click here to see my collage](Collage.png)
